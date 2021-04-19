@@ -1,2 +1,2 @@
 # AutomatedTesting
-complete bullshit and not a subject
+complete bullshit and not a subject for me)
